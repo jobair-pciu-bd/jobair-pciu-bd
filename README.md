@@ -85,7 +85,7 @@ Interested in remote roles, contract work, and long-term projects.
 <p>
 <a href="https://www.linkedin.com/in/jobairhossain00/">LinkedIn</a> &nbsp; · &nbsp;
 <a href="https://jobair-pciu-bd.github.io/">Portfolio</a> &nbsp; · &nbsp;
-<a href="mailto:jobair.pciu.bd@gmail.com">Email</a>
+<a href="mailto:jobair002u@gmail.com">Email</a>
 </p>
 
 <div align="center">
